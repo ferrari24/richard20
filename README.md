@@ -1,0 +1,2 @@
+# richard20
+prediksi
